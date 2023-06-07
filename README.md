@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @bastoslarissa
-- 👀 I’m interested in k-drama, pop songs and Jesus
 - 🌱 I’m currently learning how to program
 - 💞️ I’m not looking to collaborate yet
 
